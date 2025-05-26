@@ -1,4 +1,6 @@
-## Hi there 👋
+## im scared and i dont know how this works
+
+im wilson/scar!! use he/him on me or ill jump
 
 <!--
 **doublelifescar/doublelifescar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
