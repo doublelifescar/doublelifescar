@@ -10,7 +10,7 @@
 
 – read my [carrd](https://thirdlifescar.carrd.co/#) before you interact!!! it has more about me ([interests](https://github.com/user-attachments/assets/7efec1f4-8e0e-431f-a49f-610e497602b2), boundaries, ect) + more dni information
 
-- SIGN MY [ATA](https://secretlifescar.atabook.org/) !!!
+– SIGN MY [ATA](https://secretlifescar.atabook.org/) !!!
 
 
 
